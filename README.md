@@ -1,0 +1,2 @@
+# iklimi-etkileyen-faktorler
+mezuniyet
